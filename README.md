@@ -1,1 +1,1 @@
-# burger
+# BURGER SYNDICATE
